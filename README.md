@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/ork1sf.jpg)
+![](https://i.pinimg.com/736x/01/f9/b3/01f9b3fe41524a652658e71ea2d20123.jpg)
 
 ![](https://files.catbox.moe/64anrj.webp) ![](https://files.catbox.moe/64anrj.webp)
 
