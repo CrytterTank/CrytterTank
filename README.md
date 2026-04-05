@@ -1,6 +1,6 @@
 ![](https://i.pinimg.com/736x/01/f9/b3/01f9b3fe41524a652658e71ea2d20123.jpg)
 
-![](https://files.catbox.moe/64anrj.webp) ![](https://files.catbox.moe/64anrj.webp)
+![](https://64.media.tumblr.com/ca2cd12015c43c7d84cb49d3f63d9052/7d0978d27a1da6b8-a0/s1280x1920/3d90f9d5bac150037c6bd2e56837a3097dca2640.pnj)
 
 " Who are you.. trying to fool..? "
 
