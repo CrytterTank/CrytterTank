@@ -5,7 +5,7 @@
 
 ✅ At Computer .◞ C+H ── slow replies. .
 
-📁 OffTab .◞ C+H ── slow replies. .
+⚠ OffTab .◞ C+H ── slow replies. .
 
 ❌ AFK/Busy .◞ C+H ── no replies. .
 
