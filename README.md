@@ -26,7 +26,7 @@ frqs are 18+ on PT.
 
 always IWEC, i'm in a tough spot mentally right now so i may be iffy when interacting.
 
-
+Do NOT copy skins.
 
 ### DNI .ᐟ
 
