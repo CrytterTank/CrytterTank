@@ -14,9 +14,35 @@
 
 # Info .ᐟ
 
+You can call me Crytter or my pony name, they/them :D
+
+interact with me first!
+
+### BYI .ᐟ
+
+I'm 19.
+
+frqs are 18+ on PT.
+
+always IWEC, i'm in a tough spot mentally right now so i may be iffy when interacting.
+
 
 
 ### DNI .ᐟ
+
+Basic DNI. (Transphobic, Racsist, Abelist, Sexist, Homophobic)
+
+You use slurs you can't reclaim
+
+Agisnt neopronouns and/or xenoidentites
+
+Agianst Furrys/Therians/Otherkins/Kemomomimis
+
+˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
+
+Dream Supporters
+
+Vivziepop Supporters
 
 #
  ![](https://camo.githubusercontent.com/c55c67df1d58509d9d9d1bcdf19f628571e353b492637dc3badf074305a13764/68747470733a2f2f66696c652e67617264656e2f5a3054432d306d436767784765564c4f2f55736572626f7865732f5468697325323075736572253230757365732532306461726b2532306d6f64652532302e6a7067) 
